@@ -1,4 +1,3 @@
-
 [[null|]]DEDICATION  
 献词
 

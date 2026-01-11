@@ -1,4 +1,3 @@
-
 [[null|]]And the day came  
 那天终于到来
 

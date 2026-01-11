@@ -30,27 +30,27 @@ AND 密切
     我有权拥有自己的感受、信仰、观点、偏好等。
 9.  I have the right to protest sarcasm, destructive criticism, or unfair treatment.  
     我有权抗议讽刺、破坏性批评或不公平对待。
-10.  I have a right to feel angry and to express it non-abusively.  
+10. I have a right to feel angry and to express it non-abusively.  
     我有权感到愤怒，并以非攻击性的方式表达出来。
-11.  I have a right to refuse to take responsibility for anyone else’s problems.  
+11. I have a right to refuse to take responsibility for anyone else’s problems.  
     我有权拒绝为任何人的问题承担责任。
-12.  I have a right to refuse to take responsibility for anyone’s bad behavior.  
+12. I have a right to refuse to take responsibility for anyone’s bad behavior.  
     我有权拒绝为任何人的不良行为承担责任。
-13.  I have a right to feel ambivalent and to occasionally be inconsistent.  
+13. I have a right to feel ambivalent and to occasionally be inconsistent.  
     我有权感到矛盾和偶尔不一致。
-14.  I have a right to play, waste time and not always be productive.  
+14. I have a right to play, waste time and not always be productive.  
     我有权玩耍，浪费时间，并不总是保持高效。
-15.  I have a right to occasionally be childlike and immature.  
+15. I have a right to occasionally be childlike and immature.  
     我有权偶尔表现得像孩子一样天真和不成熟。
-16.  [[null|]]I have a right to complain about life’s unfairness and injustices.  
+16. [[null|]]I have a right to complain about life’s unfairness and injustices.  
     我有权抱怨生活的不公平和不公正。
-17.  I have a right to occasionally be irrational in safe ways.  
+17. I have a right to occasionally be irrational in safe ways.  
     我有权偶尔以安全的方式表现出不合理。
-18.  I have a right to seek healthy and mutually supportive relationships.  
+18. I have a right to seek healthy and mutually supportive relationships.  
     我有权寻求健康且相互支持的关系。
-19.  I have a right to ask friends for a modicum of help and emotional support.  
+19. I have a right to ask friends for a modicum of help and emotional support.  
     我有权向朋友寻求适量的帮助和情感支持。
-20.  I have a right to complain and verbally ventilate in moderation.  
+20. I have a right to complain and verbally ventilate in moderation.  
     我有权适度地抱怨和口头宣泄。
-21.  I have a right to grow, evolve and prosper.  
+21. I have a right to grow, evolve and prosper.  
     我有权成长、进化和繁荣。

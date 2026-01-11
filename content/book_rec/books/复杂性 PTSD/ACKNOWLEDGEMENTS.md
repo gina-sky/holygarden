@@ -1,4 +1,3 @@
-
 ACKNOWLEDGEMENTS  
 致谢
 
@@ -16,8 +15,6 @@ I am grateful to all those writers listed in the Bibliography, and those unliste
 
 I am grateful to my friends in recovery with whom I have shared the process of mutual commiseration. We have aided each other greatly in our journeys of recovery.  
 我对与我分享相互慰藉过程的康复朋友们表示感激。我们在康复之旅中互相帮助很大。
-
-  
 
 **[[null|]]DISCLAIMER  
 免责声明**

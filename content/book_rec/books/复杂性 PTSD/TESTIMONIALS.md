@@ -84,7 +84,6 @@ I have been working in the field of counseling education for 12 years, and I can
 I felt compelled to write and thank you for your article on complex PTSD. Reading it has for the first time allowed me to cry real tears from the depths of my body for the pain and loss I experienced on my life journey so far. — M.  
 我感到有必要写信感谢你关于复杂 PTSD 的文章。阅读它让我第一次从身体深处流下了真正的泪水，为我在人生旅程中经历过的痛苦和损失。— M.
 
-
 **[[null|]]COMPLEX PTSD: FROM  
 复杂型 PTSD：从  
 SURVIVING TO THRIVING  

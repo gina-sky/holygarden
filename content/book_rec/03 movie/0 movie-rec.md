@@ -3,16 +3,15 @@ title="alist"
 https://www.zoomeye.org/
 https://fofa.info/
 
-链接 / URL https://al.chirmyram.com/dav/ 
-主机 / Host al.chirmyram.com 
-路径 / Path /dav/ 
-协议 / HTTPS SSL 
-端口 / Port 443 
-账号 / User alist 
+链接 / URL https://al.chirmyram.com/dav/
+主机 / Host al.chirmyram.com
+路径 / Path /dav/
+协议 / HTTPS SSL
+端口 / Port 443
+账号 / User alist
 密码 / Password alist
 
 ```
-
 
 1. 拯救大兵瑞恩--生命的价值，不是每个人都有选择的权利
 2. 第六感-鬼片，鬼心理片，他们像我们一样的走来走去，只能看到他们想看的东西，所看到的世界，也许并不是全部。爱的情感表达。

@@ -34,31 +34,31 @@ When I first got together with my wife eleven years ago, we spent considerable t
     进行对话。给出简短、简洁的陈述，让对方有机会反思并复述关键点，以便让你知道你被准确地听到。
 9.  No denial of the other’s rights as outlined in the Bill of Rights above.  
     不得否认上述《权利法案》中规定的他人的权利。
-10.  Differences are often not a matter of right or wrong; both people can be right, and merely different. Be willing to sometimes agree to differ.  
+10. Differences are often not a matter of right or wrong; both people can be right, and merely different. Be willing to sometimes agree to differ.  
     差异通常不是对错的问题；两个人都可以是正确的，只是不同。有时愿意同意不同。
-11.  Avoid “you” statements. Use “I” statements that identify your feelings and your experience of what you perceive as unfair.  
+11. Avoid “you” statements. Use “I” statements that identify your feelings and your experience of what you perceive as unfair.  
     避免使用“你”的说法。使用“我”的说法来表达你的感受和对你认为不公平的事情的感受经历。
-12.  One specific issue, with accompanying identifiable behavior, at a time. Ask yourself what hurts the most to try to find your key complaint.  
+12. One specific issue, with accompanying identifiable behavior, at a time. Ask yourself what hurts the most to try to find your key complaint.  
     一次关注一个具体问题，并伴随可识别的行为，问问自己什么最让你受伤，以找到你的主要投诉。
-13.  Stick to the issue until both persons feel fully heard. Take turns presenting issues.  
+13. Stick to the issue until both persons feel fully heard. Take turns presenting issues.  
     坚持讨论问题，直到双方都感到完全被听到。轮流提出问题。
-14.  No interrupting or filibustering.  
+14. No interrupting or filibustering.  
     不要打断或拖延时间。
-15.  Present a complaint as lovingly and calmly as possible.  
+15. Present a complaint as lovingly and calmly as possible.  
     尽可能以温柔和冷静的方式提出投诉。
-16.  Timeouts: If discussion becomes heated either person can call a timeout \[one minute to 24 hours\], as long as s/he nominates a time to resume. {See 1 below}  
+16. Timeouts: If discussion becomes heated either person can call a timeout \[one minute to 24 hours\], as long as s/he nominates a time to resume. {See 1 below}  
     超时：如果讨论变得激烈，任何一方都可以叫停\[1 分钟到 24 小时\]，只要指定一个恢复的时间。{见以下第 1 点}
-17.  Discharge as much of any accumulated charge before hand as possible.  
+17. Discharge as much of any accumulated charge before hand as possible.  
     在讨论之前，尽可能多地释放任何积累的愤怒。
-18.  Own responsibility for any accumulated charge in the anger that might come from not talking about it soon enough.  
+18. Own responsibility for any accumulated charge in the anger that might come from not talking about it soon enough.  
     对于因未能及时讨论而可能产生的愤怒，由个人承担责任。
-19.  Own responsibility for accumulated charge displaced from other hurts. {See 2 below}  
+19. Own responsibility for accumulated charge displaced from other hurts. {See 2 below}  
     对自己的累积电荷承担责任，来自其他伤害。{见下文 2}
-20.  Commit to grow in your understanding of how much of your charge comes from childhood abuse/neglect.  
+20. Commit to grow in your understanding of how much of your charge comes from childhood abuse/neglect.  
     承诺加深你对电荷来源的理解，了解其中多少来自童年虐待/忽视。
-21.  Commit to recovering from the losses of childhood by effectively identifying, grieving, and reclaiming them.  
+21. Commit to recovering from the losses of childhood by effectively identifying, grieving, and reclaiming them.  
     承诺通过有效识别、哀悼和恢复来从童年的损失中恢复。
-22.  [[null|]]Apologize from an unashamed place. Make whatever amends are possible.  
+22. [[null|]]Apologize from an unashamed place. Make whatever amends are possible.  
     从无耻之地道歉。做出可能的任何补救。
 
 Include your intention to correct your behavior in the future. Explain your extenuating circumstances as evidence – not as an excuse - that you were not trying to be hurtful.  
@@ -82,7 +82,7 @@ Timeouts can range from one minute to 24 hours depending on how long it takes ei
 Timeouts work best when the person calling them nominates a time to resume conflict resolution, so that timeouts do not become techniques for dodging issues.  
 当叫停的人指定了恢复冲突解决的时间时，叫停效果最佳，这样叫停就不会成为逃避问题的手段。
 
-Timeouts can be used individually as a time to release any accumulated charge. This can be done by using the safe “angering out” techniques I describe in [[5. What if I Was Never Hit_|chapter 5]] of my book_, The Tao of Fully Feeling._  
+Timeouts can be used individually as a time to release any accumulated charge. This can be done by using the safe “angering out” techniques I describe in [[5. What if I Was Never Hit_|chapter 5]] of my book*, The Tao of Fully Feeling.*  
 叫停可以单独使用，作为释放任何积累的愤怒的时间。这可以通过使用我在《全然感受的道》第五章中描述的安全的“愤怒释放”技巧来完成。
 
 **[[null|]]2\. More on Transference, #19 & #20  
