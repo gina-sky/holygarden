@@ -1,8 +1,10 @@
 ---
+title: 00 title 
+date: 2026-01-01
 draft: true
 ---
 
-- ff
+- ff-1
 - 
 
 ```c
