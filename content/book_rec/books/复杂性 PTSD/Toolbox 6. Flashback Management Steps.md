@@ -22,38 +22,38 @@ I am ending this book with a reiteration of the most essential principles of Cpt
     提醒自己，你现在拥有一个成人的身体，有盟友、技能和资源来保护你，这些你小时候从未有过。\[感到渺小和脆弱是闪回的迹象。\]
 7.  [[null|]]**Ease back into your body**. Fear launches you into “heady” worrying, or numbing and spacing out.  
     慢慢回到你的身体中。恐惧让你陷入“狂热的”担忧，或者麻木和分心。
-
+    
     \[a\] **Gently ask your body to Relax**: feel each of your major muscle groups and softly encourage them to relax. \[Tightened muscles send false danger signals to your brain.\]  
     \[a\] 轻轻地让你的身体放松：感受你每个主要肌肉群，并温柔地鼓励它们放松。\[紧绷的肌肉会向你的大脑发送虚假的危险信号。\]
-
+    
     \[b\] **Breathe deeply and slowly**. \[Holding your breath also signals danger.\]  
     \[b\] 深深地、慢慢地呼吸。\[屏住呼吸也会发出危险的信号。\]
-
+    
     \[c\] **Slow down**: rushing presses your brain’s flight response button.  
     \[c\]放慢速度：匆忙会按下你大脑的逃跑反应按钮。
-
+    
     \[d\] **Find a safe place** to unwind and soothe yourself: wrap yourself in a blanket, hold a pillow or a stuffed animal, lie down on your bed or in a closet or in a bath; take a nap.  
     \[d\]找一个安全的地方放松和安抚自己：用毯子把自己裹起来，抱一个枕头或毛绒玩具，躺在床上或在衣柜里，或在浴缸里；小睡一会儿。
-
+    
     \[e\] **Feel the fear in your body without reacting to it**. Fear is just an energy in your body. It cannot hurt you if you do not run from it.  
     \[e\]感受身体中的恐惧，但不要对它做出反应。恐惧只是你身体中的能量。如果你不逃避它，它就不能伤害你。
-
+    
 8.  **Resist the Inner Critic’s Drasticizing and Catastrophizing**.  
     抵制内心批评者的夸大和灾难化。
-
+    
     \[a\] **Use thought-stopping** to halt the critic’s endless exaggerations of danger, and its constant planning to control the uncontrollable. Refuse to shame, hate or abandon yourself. Channel the anger of self- attack into saying “NO” to your critic’s unfair self-criticism.  
     \[a\] 使用思维停止法来阻止批评家对危险的无限夸张，以及它对不可控事物的不断计划。拒绝羞辱、憎恨或放弃自己。将自我攻击的愤怒转化为对批评家不公平自我批评说“不”。
-
+    
     \[b\] **Use Thought-substitution & Thought-correction** to replace negative thinking with your memorized list of your qualities and accomplishments.  
     \[b\] 使用思维替代和思维纠正法，用你记忆中的优点和成就列表来替换消极思维。
-
+    
 9.  **Allow yourself to grieve**. Flashbacks are opportunities to release old, unexpressed feelings of fear, hurt, and abandonment. Validate and soothe your child’s past experience of helplessness and hopelessness. Healthy grieving can turn your tears into self-compassion and your anger into self-protection.  
     允许自己哀悼。闪回是释放旧有未表达出的恐惧、伤害和被遗弃感的机会。验证和安抚孩子过去无助和绝望的经历。健康的哀悼可以将你的泪水转化为自我同情，将你的愤怒转化为自我保护。
-10. **Cultivate safe relationships and seek support**. Take time alone when you need it, but don’t let shame isolate you. [[null|]]Feeling shame doesn’t mean you are shameful. Educate your intimates about flashbacks and ask them to help you talk and feel your way through them.  
+10.  **Cultivate safe relationships and seek support**. Take time alone when you need it, but don’t let shame isolate you. [[null|]]Feeling shame doesn’t mean you are shameful. Educate your intimates about flashbacks and ask them to help you talk and feel your way through them.  
     培养安全的关系并寻求支持。当你需要独处时，请给自己时间，但不要让羞耻感让你孤立。感到羞耻并不意味着你就是可耻的。教育你的亲密伴侣关于闪回的知识，并请他们帮助你谈论和感受这些经历。
-11. **Learn to identify the types of triggers that lead to flashbacks**. Avoid unsafe people, places, activities and triggering mental processes. Practice preventive maintenance with these steps when triggering situations are unavoidable.  
+11.  **Learn to identify the types of triggers that lead to flashbacks**. Avoid unsafe people, places, activities and triggering mental processes. Practice preventive maintenance with these steps when triggering situations are unavoidable.  
     学习识别导致闪回的触发类型。避免不安全的人、地方、活动和触发心理过程。当无法避免触发情况时，请按照这些步骤进行预防性维护。
-12. **Figure out what you are flashing back to.** Flashbacks are opportunities to discover, validate and heal your wounds from past abuse and abandonment. They also point to your still unmet developmental needs and can provide you with motivation to get them met.  
+12.  **Figure out what you are flashing back to.** Flashbacks are opportunities to discover, validate and heal your wounds from past abuse and abandonment. They also point to your still unmet developmental needs and can provide you with motivation to get them met.  
     弄清楚你正在闪回到什么。闪回是发现、验证和治愈过去虐待和遗弃所受伤害的机会。它们还指向你尚未满足的发展需求，并可以为你提供满足这些需求的动力。
-13. **Be patient with a slow recovery process**. It takes time in the present to become de-adrenalized, and considerable time in the future to gradually decrease the intensity, duration and frequency of flashbacks. Real recovery is a gradually progressive process \[often two steps forward, one step back\], not an attained salvation fantasy. Don’t beat yourself up for having a flashback.  
+13.  **Be patient with a slow recovery process**. It takes time in the present to become de-adrenalized, and considerable time in the future to gradually decrease the intensity, duration and frequency of flashbacks. Real recovery is a gradually progressive process \[often two steps forward, one step back\], not an attained salvation fantasy. Don’t beat yourself up for having a flashback.  
     对缓慢的恢复过程保持耐心。在当下需要时间来去肾上腺素，在未来需要相当长的时间来逐渐减少闪回的强度、持续时间和频率。真正的恢复是一个逐渐进步的过程\[通常是两步前进，一步后退\]，而不是一种达到救赎幻想。不要因为闪回而责备自己。

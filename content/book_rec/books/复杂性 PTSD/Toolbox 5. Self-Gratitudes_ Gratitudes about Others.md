@@ -11,62 +11,62 @@ This chart is a self-esteem building exercise and is best approached as a work i
 1\. Accomplishments  
 1\. 成就
 
-![](books/复杂性%20PTSD/images/00023.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00023.jpeg)
 
 2\. Traits  
 2\. 特性
 
-![](books/复杂性%20PTSD/images/00024.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00024.jpeg)
 
 3\. Good deeds  
 3\. 善行
 
-![](books/复杂性%20PTSD/images/00025.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00025.jpeg)
 
 [[null|]]4\. Peak Experiences  
 4\. 顶峰体验
 
-![](books/复杂性%20PTSD/images/00026.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00026.jpeg)
 
 5\. Life Enjoyments  
 5\. 生活乐趣
 
-![](books/复杂性%20PTSD/images/00027.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00027.jpeg)
 
 6\. Intentions  
 6\. 意图
 
-![](books/复杂性%20PTSD/images/00028.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00028.jpeg)
 
 7\. Good Habits  
 7\. 好习惯
 
-![](books/复杂性%20PTSD/images/00029.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00029.jpeg)
 
 8\. Jobs  
 8\. 工作
 
-![](books/复杂性%20PTSD/images/00024.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00024.jpeg)
 
 [[null|]]9\. Subjects studied  
 9\. 学习科目
 
-![](books/复杂性%20PTSD/images/00030.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00030.jpeg)
 
 10\. Obstacles overcome  
 10\. 克服的障碍
 
-![](books/复杂性%20PTSD/images/00031.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00031.jpeg)
 
 11\. Grace Received  
 11\. 接受的恩典
 
-![](books/复杂性%20PTSD/images/00032.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00032.jpeg)
 
 12\. Nurturing memories  
 12\. 培育的回忆
 
-![](books/复杂性%20PTSD/images/00033.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00033.jpeg)
 
 [[null|]]GRATITUDES ABOUT OTHERS 12X12  
 关于他人的感恩 12x12
@@ -77,59 +77,59 @@ This chart is an exercise for deconstructing the outer critic’ program of gene
 1\. Friends \[past and current\]  
 1\. 朋友\[过去和现在的\]
 
-![](books/复杂性%20PTSD/images/00034.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00034.jpeg)
 
 2\. Inspiring people  
 2\. 激励人心的人
 
-![](books/复杂性%20PTSD/images/00035.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00035.jpeg)
 
 3\. Inspiring authors  
 3\. 激励人心的作家
 
-![](books/复杂性%20PTSD/images/00036.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00036.jpeg)
 
 4\. School friends \[whether or not you are still in contact\]  
 4\. 学校朋友\[无论你是否还保持联系\]
 
-![](books/复杂性%20PTSD/images/00037.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00037.jpeg)
 
 [[null|]]5\. Circles of friends \[past and current\]  
 5\. 朋友圈\[过去和现在的\]
 
-![](books/复杂性%20PTSD/images/00038.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00038.jpeg)
 
 6\. Childhood friends \[you do not need to still be in touch with them\]  
 6\. 童年朋友\[你不需要还和他们保持联系\]
 
-![](books/复杂性%20PTSD/images/00039.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00039.jpeg)
 
 7\. Teachers  
 7\. 老师
 
-![](books/复杂性%20PTSD/images/00040.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00040.jpeg)
 
 8\. Kindness of strangers  
 8\. 陌生人的善意
 
-![](books/复杂性%20PTSD/images/00041.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00041.jpeg)
 
 9\. Pets & Animals  
 9\. 宠物与动物
 
-![](books/复杂性%20PTSD/images/00042.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00042.jpeg)
 
 [[null|]]10\. Work friends \[past and current\]  
 10\. 工作中的朋友\[过去和现在\]
 
-![](books/复杂性%20PTSD/images/00043.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00043.jpeg)
 
 11\. Groups \[past and current\]  
 11\. 群体\[过去和现在\]
 
-![](books/复杂性%20PTSD/images/00041.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00041.jpeg)
 
 12\. Nurturing memories  
 12\. 培养记忆
 
-![](books/复杂性%20PTSD/images/00044.jpeg)
+![](content/book_rec/books/复杂性%20PTSD/images/00044.jpeg)
