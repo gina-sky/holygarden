@@ -1,12 +1,10 @@
-**MINDFULNESS  
-  
-正念**
+**MINDFULNESS  正念**
 
 Psychologically speaking, _mindfulness_ is taking undistracted time to become fully aware of your thoughts and feelings so that you can have more choice in how you respond to them. Do I really agree with this thought, or have I been pressured into believing it? How do I want to respond to this feeling – distract myself from it, repress it, express it or just feel it until it changes into something else?  
   
 从心理学的角度来看，正念是花时间不受干扰地完全意识到自己的思想和感受，这样你就可以在如何回应它们方面有更多的选择。我真的同意这个想法吗，还是我是在压力下相信了它？我想要如何回应这种感觉——让自己分心，压抑它，表达它，还是只是感受它直到它变成其他什么？
 
-Mindfulness is a perspective that weds your capacity for self-observation with your instinct of self-compassion. It is therefore your ability to observe yourself from an objective and self-accepting viewpoint. It is a key function of a healthily developed ego and is sometimes described as the _observing ego_ or the _witnessing self_.  
+<span style="background:#d3f8b6">Mindfulness is a perspective that weds your capacity for self-observation with your instinct of self-compassion. It is therefore your ability to observe yourself from an objective and self-accepting viewpoint</span>. It is a key function of a healthily developed ego and is sometimes described as the _observing ego_ or the _witnessing self_.  
   
 正念是一种将自我观察的能力与自我同情本能结合的视角。因此，它是你从客观和自我接纳的角度观察自己的能力。它是健康发展的自我意识的关键功能，有时被称为观察自我或见证自我。
 
@@ -26,6 +24,6 @@ I cannot overstate the importance of becoming aware of your inner self-commentar
 
 ![](content/book_rec/books/复杂性%20PTSD/images/00003.jpeg)
 
-Finally, it is important to note that mindfulness tends to develop and expand in a progressive manner to all levels of our experience, cognitive, emotional, physical and relational. Mindfulness is essential for guiding us at every level of recovering, and we will examine this principle more closely throughout the book.  
+<span style="background:#d3f8b6">Finally, it is important to note that mindfulness tends to develop and expand in a progressive manner to all levels of our experience, cognitive, emotional, physical and relational</span>. Mindfulness is essential for guiding us at every level of recovering, and we will examine this principle more closely throughout the book.  
   
 最后，值得注意的是，正念往往以渐进的方式发展和扩展到我们经验的各个方面，包括认知、情感、身体和人际关系。正念在恢复的每个层面都至关重要，我们将在本书中更深入地探讨这一原则。
