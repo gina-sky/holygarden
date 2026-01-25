@@ -58,7 +58,7 @@ The disease of emotional emaciation is epidemic. Its effects on health are often
   
 情感枯竭的疾病是普遍的。它对健康的影响通常被委婉地称为压力，就像情感一样，压力常常被当作一些不想要的废物，必须被清除。
 
-Until all of the emotions are accepted indiscriminately (and acceptance does not imply license to dump emotions irresponsibly or abusively), there can be no wholeness, no real sense of well being, and no solid sense of self esteem. Thus, while it may be fairly easy to like yourself when feelings of love or happiness or serenity are present, deeper psychological health is seen only when you can maintain a posture of self-love and self-respect in the times of emotional hurt that accompany life’s inevitable contingencies of loss, loneliness, confusion, uncontrollable unfairness, and accidental mistake.  
+Until all of the emotions are accepted indiscriminately (and acceptance does not imply license to dump emotions irresponsibly or abusively), there can be no wholeness, no real sense of well being, and no solid sense of self esteem. Thus, while it may be fairly easy to like yourself when feelings of love or happiness or serenity are present, deeper psychological health is seen only ==when you can maintain a posture of self-love and self-respect in the times of emotional hurt that accompany life’s inevitable contingencies of loss, loneliness, confusion, uncontrollable unfairness, and accidental mistake.  ==
   
 除非所有情感都被无差别地接受（接受并不意味着可以不负责任或滥用地发泄情感），否则不可能有完整性，没有真正的幸福感，也没有稳固的自尊感。因此，虽然当存在爱、快乐或平静的感觉时，喜欢自己可能相当容易，但更深层次的心理健康只有在你能维持自我爱护和自尊的姿态，在伴随生活不可避免的不幸、孤独、困惑、无法控制的不公平和意外错误等情感痛苦时刻，才能体现出来。
 

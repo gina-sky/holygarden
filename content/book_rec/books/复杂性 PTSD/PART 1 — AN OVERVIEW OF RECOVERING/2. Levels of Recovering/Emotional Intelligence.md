@@ -2,7 +2,7 @@
   
 情绪智力**
 
-Daniel Goleman defines emotional intelligence as our ability to successfully recognize and manage our own feelings and to healthily [[null|]]respond to the feelings of others. As implied above, I believe the quality of our emotional intelligence is reflected in the degree to which we accept all of our feelings without automatically dissociating from them or expressing them in a way that hurts ourselves or others. When we are emotionally intelligent we also extend this acceptance to our intimates. One of my clients calls this the hallmark of “relationships.”  
+Daniel Goleman defines emotional intelligence as <span style="background:#affad1">our ability to successfully recognize and manage our own feelings and to healthily respond to the feelings of others</span>. As implied above, I believe the quality of our emotional intelligence is reflected in the degree to which ==we accept all of our feelings without automatically dissociating from them or expressing them in a way that hurts ourselves or others==. When we are emotionally intelligent we also extend this acceptance to our intimates. One of my clients calls this the hallmark of “relationships.”  
   
 丹尼尔·戈尔曼将情绪智力定义为我们成功地识别和管理自己的能力，以及健康地回应他人情感的能力。如上所述，我认为我们情绪智力的质量体现在我们接受所有情感的程度，而不会自动与之分离，也不会以伤害自己或他人的方式表达它们。当我们具有情绪智力时，我们也会将这种接受扩展到我们的亲密关系中。我的一个客户称这是“关系”的标志。
 
