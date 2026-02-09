@@ -6,7 +6,7 @@ Trauma takes its toll on the body in many ways. We need to comprehend the physic
   
 创伤以多种方式对身体造成伤害。我们需要理解创伤后应激障碍（Cptsd）对我们身体造成的身体损伤，以激励我们采取有助于我们在这一层面疗愈的实践。
 
-Most of the physiological damage of extended trauma occurs because we are forced to spend so much time in hyper-arousal – stuck in fight, flight, freeze or fawn mode.  
+Most of the physiological damage of extended trauma occurs <span style="background:#affad1">because we are forced to spend so much time in hyper-arousal – stuck in fight, flight, freeze or fawn mode</span>.  
   
 大多数长期创伤的生理损伤发生，是因为我们被迫在高度警觉的状态下花费大量时间——陷入战斗、逃跑、冻结或讨好模式。
 

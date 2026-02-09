@@ -12,11 +12,11 @@ Spiritual beliefs are of course a subject of personal and sometimes private conc
 
 ![](content/book_rec/books/复杂性%20PTSD/images/00003.jpeg)
 
-A key aspect of the abandonment depression in Cptsd is the lack of a sense of belonging to humanity, life, anyone or anything. I have met many survivors whose first glimmer of “belonging” came to them on a quest that began as a spiritual pursuit. Finding nothing but betrayal in the realm of humans, they turned to the spiritual for help.  
+A key aspect of the abandonment depression in Cptsd is the <span style="background:#affad1">lack of a sense of belonging to humanity, life, anyone or anything</span>. I have met many survivors whose first glimmer of “belonging” came to them on a quest that began as a spiritual pursuit. Finding nothing but betrayal in the realm of humans, they turned to the spiritual for help.  
   
 创伤后应激障碍（Cptsd）中放弃抑郁的一个关键方面是缺乏对人类、生活、任何人或任何事物的归属感。我遇到过许多幸存者，他们第一次感受到“归属”是在一场起初作为精神追求的探险中。在人类领域他们只找到了背叛，于是转向精神寻求帮助。
 
-Spiritual pursuits are sometimes fueled by an unconscious hope of finding a sense of belonging. The worst thing that can happen to a child is to be unwelcomed in his family of origin - to never feel included. Moreover, many survivors have little or no experience of any social arena that feels safe and welcoming.  
+<span style="background:#affad1">Spiritual pursuits are sometimes fueled by an unconscious hope of finding a sense of belonging</span>. The worst thing that can happen to a child is to be unwelcomed in his family of origin - to never feel included. Moreover, many survivors have little or no experience of any social arena that feels safe and welcoming.  
   
 精神追求有时是由一种无意识的希望驱动的，希望找到一种归属感。对孩子来说最糟糕的事情就是在他原生家庭中不受欢迎——永远感觉不到被包括在内。此外，许多幸存者几乎没有或完全没有经历过任何感觉安全和受欢迎的社会场所。
 
@@ -28,7 +28,7 @@ Many survivors also do not find a sense of belonging in traditional or organized
   
 其他幸存者通过在大自然中，通过聆听音乐或欣赏艺术，体验到属于某种更伟大、更有价值的东西。我曾对一本现在想不起书名的书感到惊奇，这本书汇集了许多著名人士通过直接感知自然之美所经历的神秘体验。
 
-A _numinous_ experience is a powerful moving feeling of well being accompanied by a sense that there is a positive, benign force behind the universe, as well as within yourself. This in turn sometimes brings enough grace with it, that you have a profound feeling that you are essentially worthwhile, that you belong in this life, and that life is a gift.  
+==A _numinous_ experience== is a powerful moving feeling of well being accompanied by a sense that there is a positive, benign force behind the universe, as well as within yourself. This in turn sometimes brings enough grace with it, <span style="background:#affad1">that you have a profound feeling that you are essentially worthwhile, that you belong in this life, and that life is a gift</span>.  
   
 神秘体验是一种强烈的、令人感动的幸福感，伴随着一种感觉，即宇宙背后以及你自身中存在着一种积极、善良的力量。这反过来有时会带来足够的恩典，让你有一种深刻的感受，觉得自己本质上是有价值的，属于这个生活，生活是一种礼物。
 
@@ -50,6 +50,6 @@ One of my website respondents sent me her personal account of therapeutic gratit
   
 感激之情在发生时是深沉而深刻的。它感觉像是与生命本身在最深层次上的连接，那一刻，所有的生活环境和我认为的问题都变得微不足道，只有最纯粹的爱存在。这确实感觉像是一种祝福，尽管转瞬即逝，但它提供了足够的力量和希望，继续旅程。
 
-Whatever the source, spiritual or numinous occurrences sometimes provide the survivor with her first sense of belonging to something bigger and essentially good. Such experiences can lead a survivor to an author or speaker or fellow traveler with similar sensibilities, and sometimes a door opens for finding comfort with a fellow human. Eventually, this may even grow into a sense that there are some humans out there who are good and safe enough to engage with.  
+<span style="background:#affad1">Whatever the source, spiritual or numinous occurrences sometimes provide the survivor with her first sense of belonging to something bigger and essentially good</span>. Such experiences can lead a survivor to an author or speaker or fellow traveler with similar sensibilities, and sometimes a door opens for finding comfort with a fellow human. Eventually, <span style="background:#affad1">this may even grow into a sense that there are some humans out there who are good and safe enough to engage with.</span>  
   
 无论来源是什么，灵性或神圣的事件有时会给幸存者带来第一次感受到自己属于某个更大且本质上善良的东西的感觉。这样的经历可能会引导幸存者找到与有相似感受的作者、演讲者或同行者，有时甚至为与一个同类找到安慰打开了一扇门。最终，这甚至可能发展成一种感觉，即世界上有一些人足够善良和安全，可以与之交往。

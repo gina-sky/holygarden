@@ -2,7 +2,7 @@
   
 身体自助**
 
-The good news is that some somatic repair happens automatically when we reduce our physiological stress by more efficient flashback management. Particularly potent help also comes from the grieving work of reclaiming the ability to cry self-compassionately and to express anger self-protectively. Both processes can release armoring, promote embodiment, improve sleep, decrease hyperarousal and encourage deeper and more rhythmic breathing.  
+The good news is that some somatic repair happens automatically when we reduce our physiological stress by more efficient flashback management. Particularly potent help also comes from <span style="background:#affad1">the grieving work of reclaiming the ability to cry self-compassionately and to express anger self-protectively</span>. Both processes can release armoring, promote embodiment, improve sleep, decrease hyperarousal and encourage deeper and more rhythmic breathing.  
   
 好消息是，当我们通过更有效的闪回管理减少生理压力时，一些躯体修复会自动发生。特别有力的帮助也来自于悲伤工作，重新获得自我同情地哭泣和自我保护地表达愤怒的能力。这两个过程都可以释放盔甲，促进具身化，改善睡眠，减少过度警觉，并鼓励更深更规律的呼吸。
 
@@ -12,7 +12,7 @@ Without further expressly somatic work, however, a full relaxed inhabitancy of y
 
 ![](content/book_rec/books/复杂性%20PTSD/images/00003.jpeg)
 
-[[null|]]Another especially helpful somatic practice is stretching. Regular systematic stretching of the body’s major muscle groups can help you to reduce the armoring that occurs when your 4F response is chronically triggered. This results from the fact that 4F activation tightens and contracts your body in anticipation of the need to fight back, flee, get small to escape notice, or rev up to launch into people-pleasing activity.  
+[[null|]]<span style="background:#affad1">Another especially helpful somatic practice is stretching</span>. Regular systematic stretching of the body’s major muscle groups can help you to reduce the armoring that occurs when your 4F response is chronically triggered. This results from the fact that 4F activation tightens and contracts your body in anticipation of the need to fight back, flee, get small to escape notice, or rev up to launch into people-pleasing activity.  
   
 另一种特别有用的身体练习是拉伸。定期系统地拉伸身体的主要肌肉群可以帮助你减少当你的 4F 反应长期被触发时产生的硬化。这源于 4F 激活会在你准备反击、逃跑、缩小以逃避注意或加速投入取悦他人的活动时，使你的身体紧绷和收缩。
 
@@ -30,12 +30,12 @@ Thankfully however, reading the literature about it convinced me about its great
 
 ![](content/book_rec/books/复杂性%20PTSD/images/00003.jpeg)
 
-Yoga, massage, meditation and relaxation training are formalized disciplines to aid in letting go of unnecessary body tension. Reasonably priced classes in these modalities are usually available in most communities.  
+<span style="background:#affad1">Yoga, massage, meditation and relaxation training are formalized disciplines to aid in letting go of unnecessary body tension</span>. Reasonably priced classes in these modalities are usually available in most communities.  
   
 瑜伽、按摩、冥想和放松训练是正式化的学科，有助于释放不必要的身体紧张。这些方式通常在大多数社区都有合理价格的课程。
 
 ![](content/book_rec/books/复杂性%20PTSD/images/00003.jpeg)
 
-[[null|]]Finally, freeze types and freeze subtypes also typically benefit from various types of movement therapy and aerobic exercise regimes. Moreover, assertiveness training and anger release work are especially helpful for survivors who have difficulty accessing their assertiveness or instincts of self-protection.  
+[[null|]]Finally, freeze types and freeze subtypes also typically benefit from various types of movement therapy and aerobic exercise regimes. <span style="background:#affad1">Moreover, assertiveness training and anger release work are especially helpful for survivors who have difficulty accessing their assertiveness or instincts of self-protection</span>.  
   
 最后，冻结类型和冻结亚型通常也受益于各种类型的运动疗法和有氧运动计划。此外，自信训练和愤怒释放工作对于难以获得自信或自我保护本能的幸存者特别有帮助。
