@@ -6,7 +6,7 @@ There are also various somatic therapies that can help our bodies heal. As with 
   
 也有各种身体疗法可以帮助我们的身体恢复。正如我之前关于认知行为疗法（CBT）的评论，我鼓励您对那些声称无需在上述认知和情感层面上工作就能治愈创伤后应激障碍（Cptsd）的身体疗法持谨慎态度。实际上，一些方法完全忽视了认知工作，以回避缩小内心批评者的关键工作。一些方法还认为，他们的技术消除了哀悼童年损失的基本必要性，以及理解虐待和疏忽的育儿方式是我们问题的根源。
 
-Nonetheless, some somatic therapists can ease the physiological traumas that are locked in our bodies, as long as the practitioner is not actively dismissing or impeding the client’s cognitive and emotional work.  
+Nonetheless, some somatic therapists can ==ease the physiological traumas that are locked in our bodies==, as long as the practitioner is not actively dismissing or impeding the client’s cognitive and emotional work.  
   
 尽管如此，一些躯体治疗师可以缓解我们身体中锁存的生理创伤，只要从业者不是积极地忽视或阻碍客户的认知和情感工作。
 

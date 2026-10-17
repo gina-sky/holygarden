@@ -10,7 +10,7 @@ I soon discovered however, that my tears were as stuck as they had ever been, or
   
 这是我的一项里程碑式成就，它演变成了一段漫长而曲折的旅程，我在这段旅程中寻求更多与各种治疗师、治疗小组和更深层次的友谊之间的联系。这些经历从极其有益到反治疗，但随着时间的推移，它们变得越来越有益。
 
-A central aspect of the truly helpful relational work was what John Bradshaw called “healing the shame that binds.” I believe toxic shame cannot be healed without some relational help. Several therapists and groups aided me greatly to unbind from the shame that made me hide whenever I could not invoke my perfect persona. Concurrently, I learned that real intimacy correlated with the amount I shared my vulnerabilities. As I increasingly practiced emotional authenticity, the glacier of my lifelong loneliness began to melt.  
+A central aspect of the truly helpful relational work was what John Bradshaw called “<span style="background:#affad1">healing the shame that binds</span>.” I believe toxic shame cannot be healed without some relational help. Several therapists and groups aided me greatly to unbind from the shame that made me hide whenever I could not invoke my perfect persona. Concurrently, I learned that r<span style="background:#affad1">eal intimacy correlated with the amount I shared my vulnerabilities</span>. As I increasingly practiced emotional authenticity, the glacier of my lifelong loneliness began to melt.  
   
 真正有益的相互关系工作的一个核心方面，正如约翰·布拉德肖所说的“治愈束缚的羞耻”。我相信，没有一些相互关系的帮助，无法治愈有毒的羞耻。几位治疗师和小组极大地帮助我摆脱了让我在无法展现完美形象时隐藏起来的羞耻。同时，我了解到真正的亲密与分享我的脆弱程度相关。随着我越来越多地练习情感的真实性，我终身孤独的冰川开始融化。
 

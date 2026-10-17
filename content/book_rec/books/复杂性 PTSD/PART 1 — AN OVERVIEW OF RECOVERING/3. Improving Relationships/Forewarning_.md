@@ -2,7 +2,7 @@
   
 预警：**
 
-There are instances of parental betrayal so extreme, that it is not fair or reasonable to expect the survivor to try to trust human beings again. If the recommendation in this chapter to open to the help of others feels too upsetting or overwhelming, please feel free to skip this chapter. There is a great deal of other material in this book that can help alleviate the many symptoms of Cptsd, and since recovery is relative and never complete, you do not need to implement everything in this book. As they say in the Twelve Step Movement: “Take the best and leave the rest.”  
+There are instances of parental betrayal so extreme, that it is not fair or reasonable to expect the survivor to try to trust human beings again. If the recommendation in this chapter to open to the help of others feels too upsetting or overwhelming, please feel free to skip this chapter. There is a great deal of other material in this book that can help alleviate the many symptoms of Cptsd, and since recovery is relative and never complete, you do not need to implement everything in this book. As they say in the Twelve Step Movement: “<span style="background:#d3f8b6">Take the best and leave the rest</span>.”  
   
 有些父母背叛行为极其严重，对幸存者来说，期望他们再次信任人类是不公平或不合理的。如果本章中关于向他人寻求帮助的建议让你感到过于痛苦或难以承受，请随时跳过这一章。这本书中还有许多其他内容可以帮助缓解许多创伤后应激障碍的症状，而且由于恢复是相对的，永远不会完全，你不需要实施这本书中的所有内容。正如十二步运动中所说：“取其精华，去其糟粕。”
 

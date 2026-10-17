@@ -2,7 +2,7 @@
   
 社交焦虑的起源**
 
-A child who grows up with no reliable human source of love, support and protection typically falls into a great deal of social unease. He “naturally” becomes reluctant to seek support from anyone, and he is forced to adopt self-sufficiency as a survival strategy.  
+<span style="background:#d3f8b6">A child who grows up with no reliable human source of love, support and protection typically falls into a great deal of social unease. He “naturally” becomes reluctant to seek support from anyone, and he is forced to adopt self-sufficiency as a survival strategy</span>.  
   
 一个在成长过程中没有可靠的人类爱情、支持和保护来源的孩子往往会陷入极大的社交不安。他“自然”地变得不愿意寻求任何人的支持，被迫采取自给自足作为生存策略。
 
@@ -10,11 +10,11 @@ Needing anything from others can feel especially dangerous. The survivor’s inn
   
 从他人那里寻求任何东西都可能特别危险。幸存者内在体验关系中的舒适和支持的能力变得非常有限或不存在。尽管如此，许多高功能幸存者学会在社会上相当充分地发挥作用。
 
-[[null|]]This is particularly the case in structured situations where expectations are clear and common goals take the focus off conversing and put it on task accomplishments. Unstructured social situations however, like attending parties or just hanging out can be considerably more triggering. Spontaneous self-expression feels like the same setup for disaster that it was in childhood.  
+[[null|]]<span style="background:#d3f8b6">This is particularly the case in structured situations where expectations are clear and common goals take the focus off conversing and put it on task accomplishments</span>. Unstructured social situations however, like attending parties or just hanging out can be considerably more triggering. Spontaneous self-expression feels like the same setup for disaster that it was in childhood.  
   
 这在结构化的情况下尤为如此，因为期望明确，共同的目标将注意力从交谈转移到任务完成上。然而，非结构化的社交场合，如参加聚会或只是闲逛，可能会引发更多的情绪。即兴的自我表达感觉就像童年时一样，是灾难的预兆。
 
-Either way, structured or spontaneous, relating often involves hiding a great deal of anxiety and discomfort. One very successful businessman client of mine told me: “I’m so cool, calm and collected in meetings. A veritable wordsmith with the composure of Michael Caine. I’m a king on the outside, but on the inside I’m a drama queen anguishing in doubt and shame about everything I say or do.”  
+Either way, structured or spontaneous, <span style="background:#d3f8b6">relating often involves hiding a great deal of anxiety and discomfort</span>. One very successful businessman client of mine told me: “I’m so cool, calm and collected in meetings. A veritable wordsmith with the composure of Michael Caine. I’m a king on the outside, but on the inside I’m a drama queen anguishing in doubt and shame about everything I say or do.”  
   
 无论是结构化的还是即兴的，关系往往涉及隐藏大量的焦虑和不舒适。我的一个非常成功的商人客户告诉我：“我在会议上非常酷、冷静和沉着。一个真正的语言大师，拥有迈克尔·凯恩的镇定。我在外面是国王，但在我内心，我是一个在怀疑和羞愧中痛苦挣扎的戏剧女王。”
 
